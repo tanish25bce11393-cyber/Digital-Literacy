@@ -1,26 +1,26 @@
-✅ Do’s
+ Do’s
 
- ✔️ Think before posting anything online
+  Think before posting anything online
  
- ✔️ Protect your personal information and privacy
+  Protect your personal information and privacy
  
- ✔️ Use respectful and polite language
+  Use respectful and polite language
  
- ✔️ Verify information before sharing
+  Verify information before sharing
  
- ✔️ Maintain a positive and professional online presence
+  Maintain a positive and professional online presence
  
  _____________________________________________________________________________________
 
-❌ Don’ts
+ Don’ts
 
- ❌ Do not share fake news or unverified content
+  Do not share fake news or unverified content
  
- ❌ Avoid posting offensive or harmful comments
+  Avoid posting offensive or harmful comments
  
- ❌ Do not overshare personal details (address, phone, etc.)
+  Do not overshare personal details (address, phone, etc.)
  
- ❌ Avoid engaging in online arguments or cyberbullying
- 
- ❌ Do not post content that can harm your reputation
+  Avoid engaging in online arguments or cyberbullying
+
+  Do not post content that can harm your reputation
  
