@@ -1,4 +1,4 @@
-📘 Case Study: Phishing
+ Case Study: Phishing
 
 
 Phishing is a type of cybercrime in which attackers trick individuals into revealing sensitive information such as passwords, bank details, or OTPs by pretending to be a trusted source.
